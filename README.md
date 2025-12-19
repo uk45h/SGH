@@ -1,0 +1,2 @@
+# SGH
+materialy dla studentow
